@@ -1,0 +1,2 @@
+# 01-exerc-cio
+GYYYYYAAAATTTTTT
